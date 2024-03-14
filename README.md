@@ -1,9 +1,5 @@
 # The-crabs-needed-you.
 
-What happens in this story?
-
-
-
 Lin is helping Bea sell t-shirts for the Crab Protection Association. They talked to a neighbor.
 
 Bea: The crabs' habitat is in danger! Buy this shirt or they would die. And what would we do without crabs!?
